@@ -1,1 +1,0 @@
-Portfolio of Jennifer Arthur
